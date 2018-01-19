@@ -1,0 +1,1 @@
+# -Copy-Kode-QR-nya-Plak-Jangan-Lama2-
